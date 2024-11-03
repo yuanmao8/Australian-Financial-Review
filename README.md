@@ -1,14 +1,14 @@
-# 朝日新闻会员账号合租车位
+# AFR Australian Financial Review会员账号合租车位
 
-我们提供朝日新闻付费会员账号合租服务，单价超级合适，支持月费和年费，请添加微信：chuanxk
+我们提供AFR Australian Financial Review付费会员账号合租服务，单价超级合适，支持月费和年费，请添加微信：chuanxk
 
 【商品说明】
 
-网站名称：朝日新闻/朝日新聞/Asahi Shimbun
+网站名称：Australian Financial Review
 
-官网：www.asahi.com
+官网：www.afr.com
 
-已开通会员套餐：プレミアム コース（3800日元）
+已开通会员套餐：Premium Digital（7美元/周）
 
 订阅方式：月费/年费
 
